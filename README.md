@@ -1,1 +1,8 @@
-![Image](https://github.com/user-attachments/assets/036bb9b2-74a2-4a1f-809b-1a56b03d3024) ![Image](https://github.com/user-attachments/assets/f0af4432-3c85-4dfe-a84e-e4b5c5fc299c) ![Image](https://github.com/user-attachments/assets/e6dc2d71-f49f-4a33-afc4-67372b157eb4)
+                  ![Image](https://github.com/user-attachments/assets/036bb9b2-74a2-4a1f-809b-1a56b03d3024)
+                  ![Image](https://github.com/user-attachments/assets/f0af4432-3c85-4dfe-a84e-e4b5c5fc299c
+
+                  just canada
+
+
+                  ![Image](https://github.com/user-attachments/assets/0204311e-2cda-4c8d-99f4-6b05d93d5de5)
+
